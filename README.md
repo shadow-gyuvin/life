@@ -18,4 +18,4 @@ This repository is about my life as Shadowwolf, the young youtuber. My name is G
 - French
 
 ## Family
-- My brpther is called Suvin An 
+- My brother is called Suvin An and is cool (sometimes) and likes Minecraft too. My dad is called Minha An and works for the Bosch company. My mom is Boram Kim and buys homes and rents them to other people. We have a dog named Cozy and she is a Maltese dog. 
